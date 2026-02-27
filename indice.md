@@ -6,3 +6,5 @@
 
 ## Lugares de interes por Paula de Juan
 ### 15 lugares que ver en Ávila imprescindibles
+## Restaurantes
+## Transportes y alojamiento
