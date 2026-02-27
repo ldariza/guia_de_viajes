@@ -10,3 +10,4 @@
 ## Transportes y alojamiento
 
 # Avila maravillosa “Ávila: esencia medieval, corazón eterno.”
+# Ávila tiene una de las murallas más largas del mundo.
